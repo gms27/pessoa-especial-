@@ -1,1 +1,2 @@
-# pessoa-especial-
+# pessoa-especial- 
+Gabriela Mendes Sousa
